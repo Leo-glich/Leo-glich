@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Leo-glich
+- 👋 Hi, I’m @Leo-glitch
 - 👀 I’m interested in > games such as Mindustry, Simple Sandbox 3, powder toy, and plasma the game. 
 - 
 
